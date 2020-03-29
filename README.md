@@ -1,1 +1,1 @@
-# Karant-na
+Zde najdete úkoly z karantény
